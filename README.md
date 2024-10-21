@@ -1,2 +1,2 @@
 # Introduction
-Hello I am Ajaya Kandel from Kathmandu, Nepal.
+Hello I am Ajaya Kandel from Tokyo, JAPAN.
